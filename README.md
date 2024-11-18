@@ -1,1 +1,1 @@
-author is Pranjali Mali
+Author - Pranjali Mali
